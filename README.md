@@ -1,0 +1,1 @@
+# fsyakz.github.io
